@@ -2,7 +2,7 @@
 - 👀 I’m interested in Girls❤️
 - 🌱 I’m currently learning Simping😌🙏
 - 💞️ I’m looking to collaborate on Tinder👻
-- 📫 How to reach me (Way to God)👿
+- 📫 How to reach me (Way to God)🙂
 
 <!---
 alivexdevil/alivexdevil is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
